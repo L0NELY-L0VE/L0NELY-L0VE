@@ -1,16 +1,15 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**L0NELY-L0VE/L0NELY-L0VE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+${\color{#b4d1dd}\textsf{౿ ݁ ㅤ.ㅤㅤ𝐒ραꭑ α𝖼𝖼ⱺυ𐓣𝗍ㅤㅤ︵ㅤ｡ㅤᏪ ˚}}$
 
-Here are some ideas to get you started:
+ㅤㅤ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+${\color{#656279}\textsf{𓈒    ୭ৎ    𝖿ⱺᥣᥣⱺω ꭑ𝗒}}$ [ꭑα𝗂𐓣](https://github.com/pearlbloom) ${\color{#656279}\textsf{ρᥣ𝗌 !    𝅄    ♡      ۪   ݁   𓈒}}$
+
+ㅤㅤ
+
+<img src="https://github.com/L0NELY-L0VE/L0NELY-L0VE/blob/6cc02f2357f7000173bc5e755f0130fb21d7db66/janejohn.webp" width="800"/>
+
+ㅤㅤ
+
+
