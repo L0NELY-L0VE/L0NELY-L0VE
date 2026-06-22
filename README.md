@@ -4,7 +4,7 @@ ${\color{#b4d1dd}\textsf{౿ ݁ ㅤ.ㅤㅤ𝐒ραꭑ α𝖼𝖼ⱺυ𐓣𝗍ㅤ
 
 ㅤㅤ
 
-${\color{#656279}\textsf{𓈒    ୭ৎ    𝖿ⱺᥣᥣⱺω ꭑ𝗒}}$ [ꭑα𝗂𐓣](https://github.com/pearlbloom) ${\color{#656279}\textsf{ρᥣ𝗌 !    𝅄    ♡      ۪   ݁   𓈒}}$
+${\color{#656279}\textsf{𓈒    ୭ৎ    𝖿ⱺᥣᥣⱺω ꭑ𝗒}}$ [ꭑα𝗂𐓣](https://github.com/dovedoll) ${\color{#656279}\textsf{ρᥣ𝗌 !    𝅄    ♡      ۪   ݁   𓈒}}$
 
 ㅤㅤ
 
